@@ -1,6 +1,6 @@
-<img width="2000" height="600" alt="Navy Geometric Technology LinkedIn Banner (8)" src="https://github.com/user-attachments/assets/8cd0ca09-7e0b-4f8d-80cd-47b2893d2b3c" />
+<img width="2000" height="600" alt="Navy Geometric Technology LinkedIn Banner (10)" src="https://github.com/user-attachments/assets/03ff75ba-a279-4c4a-8f35-97f5f0eed789" />[Uploading Navy Geometric Technology LinkedIn Banner (10).png…]()
 
-## About Me
+## About Me!
 
 Hi, I'm Rich! 👋
 
